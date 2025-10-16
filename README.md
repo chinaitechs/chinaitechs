@@ -1,5 +1,3 @@
-Digital creator from Ghana who is a website designer and theme maker in United kingdom. I am from Ghana, China.
+At Chinaitech, we combine over a decade of expertise with cutting-edge technology to deliver scalable, secure, and high-performance applications that drive business growth.
 
-Currently the main work I do is creating quality and free website themes. If you like some of the work I have created, don't hesitate to give me support.
-
-Greetings brother, I would be very happy if you said hello!
+Our mission is to empower businesses worldwide with tailored web and mobile solutions that enhance user experiences and create measurable impact.
